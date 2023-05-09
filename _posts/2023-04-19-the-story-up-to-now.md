@@ -1,6 +1,5 @@
 ---
 title:  "The story up to now"
-date:   2023-04-19 09:00:00 -0600
 ---
 At the end of 2011, I arrived back in Bristol after 15 months of travel around Asia. I was 26 years old and felt like I was starting my life from scratch. I had a good sit down with myself and contemplated the style of life I was longing for. I wanted to earn a decent keep and have flexibility with my time and location. I wanted a challenge.
 
