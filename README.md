@@ -1,1 +1,1 @@
-# Jay: Hobbyist, engineer and contributor
+# Engineer, hobbyist and contributor
