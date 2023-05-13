@@ -1,1 +1,1 @@
-# jaystewartcouk
+# Jay: Hobbyist, engineer and contributor
